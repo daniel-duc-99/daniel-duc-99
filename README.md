@@ -8,7 +8,7 @@ Hanoi Capital Region
 
 ### CONTACT INFORMATION
 
-**Email:** danielduc@lunabase.ai
+**Email:** nbducdev@gmail.com
 
 **LinkedIn:** linkedin.com/in/ducnb1211
 
